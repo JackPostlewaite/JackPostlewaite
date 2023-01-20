@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @JackPostlewaite
 - 👀 I’m interested in quantum information science and optical physics
-- 📫 How to reach me QUANTUM OP... Err, my email: jpostlewaite@arizona.edu
+- 📫 Reach me by email: jpostlewaite@arizona.edu
