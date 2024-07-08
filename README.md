@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @JackPostlewaite
 - 👀 I’m interested in quantum information science and optical physics
-- 📫 Reach me by email: jpostlewaite@arizona.edu
+- 📫 Reach me by email: jackpost@umd.edu
